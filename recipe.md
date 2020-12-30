@@ -1,0 +1,1 @@
+mix all ingridients together either microvave for 15 minutes or put on stove on medium flame for half an hour
